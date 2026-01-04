@@ -1,7 +1,7 @@
 # im surprisingly accepting of this discomfort.
 
-[![Alt text for the image](https://64.media.tumblr.com/28c4bd64dbf28410d59329144d3a097c/add23357d7a6249d-e8/s400x600/525c522538724a0cf4795e8ea593e6ae168ce74d.pnj<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/41c29ed1-6034-4803-bb23-f3650252175d" />
-)](Destination_URL_for_the_link)
+(https://64.media.tumblr.com/28c4bd64dbf28410d59329144d3a097c/add23357d7a6249d-e8/s400x600/525c522538724a0cf4795e8ea593e6ae168ce74d.pnj<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/41c29ed1-6034-4803-bb23-f3650252175d" />
+)]
 
 
 
