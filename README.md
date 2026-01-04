@@ -1,4 +1,4 @@
-## Hi there 👋
+# im surprisingly accepting of this discomfort. but im not trying to be much of a person right now, im just trying to get some sleep.
 
 <!--
 **gingerseedly/gingerseedly** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
