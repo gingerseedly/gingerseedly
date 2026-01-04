@@ -1,6 +1,6 @@
 # im surprisingly accepting of this discomfort.
 
-[![ginger from dandys world in a orange frame]([URL_of_the_image](https://64.media.tumblr.com/28c4bd64dbf28410d59329144d3a097c/add23357d7a6249d-e8/s400x600/525c522538724a0cf4795e8ea593e6ae168ce74d.pnj))
+[![[ginger from dandys world in a orange frame](https://64.media.tumblr.com/28c4bd64dbf28410d59329144d3a097c/add23357d7a6249d-e8/s400x600/525c522538724a0cf4795e8ea593e6ae168ce74d.pnj)]([[URL_of_the_image](https://64.media.tumblr.com/28c4bd64dbf28410d59329144d3a097c/add23357d7a6249d-e8/s400x600/525c522538724a0cf4795e8ea593e6ae168ce74d.pnj)](https://64.media.tumblr.com/28c4bd64dbf28410d59329144d3a097c/add23357d7a6249d-e8/s400x600/525c522538724a0cf4795e8ea593e6ae168ce74d.pnj))
 
 
 <!--
