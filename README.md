@@ -14,6 +14,8 @@
 
 ### DNI: proshippers/comshippers, MAGA, homophobes, transphobes, racists, xenophobes, hazbin hotel/helluva boss fans, sprout yume doubles, sprout/ginger haters, mean people
 
+### PT: um im very scared of people so like expect me to be awkward if u int, and im mainly afk and aurafarming/making new ponies.im ok w boops and cuddling and kisses but like pls dont be weird ill cry atbyou!
+
 
 <img width="1280" height="32" alt="image" src="https://github.com/user-attachments/assets/9cc77c94-a5ba-4637-8af1-742cba94692c" />
 
