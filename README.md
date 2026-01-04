@@ -15,5 +15,6 @@
 ### DNI: proshippers/comshippers, MAGA, homophobes, transphobes, racists, xenophobes, hazbin hotel/helluva boss fans, doubles, sprout/ginger haters, mean people
 
 
-[Play my profile sound!](ScreenRecording_01-04-202601-13-18_1.mp3)
+<img width="1280" height="32" alt="image" src="https://github.com/user-attachments/assets/9cc77c94-a5ba-4637-8af1-742cba94692c" />
 
+# i'm just trying to get some sleep.
