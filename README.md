@@ -1,6 +1,6 @@
-<img width="640" height="359" alt="IMG_3119" src="https://github.com/user-attachments/assets/af52d30e-9073-4fed-8af8-ce5c18c359e8" />
-
 # just another day, throw your cares away, laugh hand in hand with me!
+
+<img width="640" height="359" alt="IMG_3119" src="https://github.com/user-attachments/assets/af52d30e-9073-4fed-8af8-ce5c18c359e8" />
 
 ### she/they - agender bisexual - big shrimpku fan! i like dandys world and vocal synthesizers
 ### autism and adhd plus alottt of mental illness and trauma that the public doesnt need to know about! i am a little fucked up
